@@ -1,0 +1,2 @@
+# telefon
+Galaxi8+
